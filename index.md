@@ -23,7 +23,7 @@ Irvine, CA
 
 **SDNARI Women for Women**
 
-Volunteer for a San Diego-based non-profit providing aid to women suffering from domestic violence.
+Volunteer
 
 _2024-Present_
 
