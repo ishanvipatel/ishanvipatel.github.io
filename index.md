@@ -13,8 +13,24 @@ San Diego, CA
 ## Activities
 **COSMOS at UC Irvine**
 
-Cluster 9 Researcher: Diet and its role in shaping the behavior of gut bacteria, how they respond to stresses, and how their stress response can affect their resilience to other stresses,  imparting tolerance in these cells against antibiotics.
+Cluster 9 Researcher
 
 _2025_
 
 Irvine, CA
+
+**SDNARI Women for Women**
+
+Volunteer for a San Diego-based non-profit providing aid to women suffering from domestic violence.
+
+_2024-Present_
+
+San Diego, CA
+
+**HOSA Medical Club**
+
+Competitor and volunteer 
+
+_2024-Present_
+
+San Diego, CA
