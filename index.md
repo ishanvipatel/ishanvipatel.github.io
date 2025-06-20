@@ -21,13 +21,13 @@ Irvine, CA
 
 * * * 
 
-**SDNARI Women for Women**
+**SDNari Women for Women Youth Committee**
 
 Volunteer
 
 _2024-Present_
 
-San Diego, CA
+[SDNARI website](./https://sdnari.org/) San Diego, CA
 
 * * *
 
