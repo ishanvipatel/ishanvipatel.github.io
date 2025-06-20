@@ -27,7 +27,7 @@ Volunteer
 
 _2024-Present_
 
-[SDNARI website](./https://sdnari.org/) San Diego, CA
+[SDNARI website](./sdnari.org/) San Diego, CA
 
 * * *
 
